@@ -28,3 +28,5 @@ latest_posts:
 I'm an aspiring Economics PhD student from Bogotá, Colombia. I currently work as a Predoctoral research assistant at the Economics division of Columbia Business School. 
 
 I'm interested in macroeconomic development, specially on labor and spatial economics, growth and climate change. I hold a bachelor's degree and a master's in Economics from Universidad de los Andes
+
+Previously, I worked as research assistant at the Center for Sustainable Finance at Universidad de los Andes, and at the Research Department of the Inter-American Development Bank.
