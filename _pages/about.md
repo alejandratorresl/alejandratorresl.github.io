@@ -31,4 +31,4 @@ I'm interested in macroeconomic development, specially on labor and spatial econ
 
 Previously, I worked as research assistant at the [Center for Sustainable Finance](https://cfs.uniandes.edu.co/es/) at Universidad de los Andes, and at the Research Department of the [Inter-American Development Bank](https://www.iadb.org/en/knowledge-resources/research-idb).
 
-[CV](https://www.dropbox.com/scl/fi/4od37bx6enfm2tx2vmpol/CV.pdf?rlkey=2eafmh5np9cfhmvhppuho4734&st=mlxpfvti&dl=0)
+[CV](https://www.dropbox.com/scl/fi/cnrcxhzxv3veha1ilry6d/CV.pdf?rlkey=sbsz78731eyx6wbq3inae6b79&st=819u2t3z&dl=0)
