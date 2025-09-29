@@ -15,7 +15,7 @@ nav_order: 2
 
 # work in progress
 
-**Arepas are not Tacos: On the Labor Markets of Latin America**. With María Aristizabal-Ramírez and Cezar Santos
+[Arepas are not Tacos: On the Labor Markets of Latin America](https://drive.google.com/file/d/1D03eHgPgEKOj-PGHjuTLTXIghj1Oly0w/view). With María Aristizabal-Ramírez and Cezar Santos
 
 **Carbon Pricing Winners and Losers: Workers, Consumersm and Policy Options**. With Marina M. Tavares.
 
