@@ -31,4 +31,4 @@ I'm interested in macroeconomic development, specially on labor and spatial econ
 
 Previously, I worked as research assistant at the [Center for Sustainable Finance](https://cfs.uniandes.edu.co/es/) at Universidad de los Andes, and at the Research Department of the [Inter-American Development Bank](https://www.iadb.org/en/knowledge-resources/research-idb).
 
-[CV](https://www.dropbox.com/scl/fi/4hhbi778hct3be9a8ffgv/CV_Alejandra-Torres-Leon.pdf?rlkey=cf8rzaxuajot1e2vsfihy0i2q&st=d0m46ia5&dl=0)
+[CV](https://www.dropbox.com/scl/fi/ihrh99cgdvqe15sg6wksg/CV_Alejandra-Torres-Le-n.pdf?rlkey=3vet5alxijiq05r7hfgqetaml&st=c8vy30t8&dl=0)
