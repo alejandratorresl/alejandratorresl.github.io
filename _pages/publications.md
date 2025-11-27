@@ -9,7 +9,7 @@ nav_order: 2
 
 **working papers**
 
-[Go green or go home? Energy transition, directed technical change and wage inequality](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=4109428) 2022. Documento CEDE 11. Universidad de los Andes - CEDE ([Latest version](https://www.dropbox.com/scl/fi/qwpo39mrfsadgwxjqyxl5/Writing-sample_Alejandra-Torres-Leon.pdf?rlkey=30rzkeozpm32jmfiflmhvsw34&st=agiyd1ds&dl=0))
+[Go green or go home? Energy transition, directed technical change and wage inequality](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=4109428) 2022. Documento CEDE 11. Universidad de los Andes - CEDE ([Latest version](https://www.dropbox.com/scl/fi/f6i8h5ewh0h6eaukhc185/Writing-sample-Alejandra-Torres-Le-n.pdf?rlkey=m0uto4ll2gl1atd0oze0e7fr7&st=u0xn8mnm&dl=0))
 
 [Arepas are not Tacos: On the Labor Markets of Latin America](https://drive.google.com/file/d/1D03eHgPgEKOj-PGHjuTLTXIghj1Oly0w/view). With María Aristizabal-Ramírez and Cezar Santos
 
